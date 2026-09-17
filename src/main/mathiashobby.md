@@ -2,7 +2,7 @@
 
 ## strippere
 
-jeg kan godt lide strippere 
+jeg kan godt lide strippere
 
 ## cocaine
 
